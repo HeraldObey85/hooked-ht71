@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with hooked elite Script, the #1 Script. Includes unlimited stamina and one-hit kill for unbeatable performance.
 
 
 
